@@ -1,0 +1,2 @@
+# Parola-retici
+Parola Üretici
